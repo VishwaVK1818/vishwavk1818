@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am student ,learning tech<br>Making  moto vlog in youtube:vishwa_vlog<br><br>Humbel and kind
+👨‍🎓I am student ,learning tech<br>🏍️Making  moto vlog in youtube:vishwa_vlog<br>💞Humble and kind
 
 
 ## 🌐 Socials:
